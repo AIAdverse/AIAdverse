@@ -10,7 +10,7 @@ AI will be the same. What happens when the data is no longer diverse as it losse
 Once information is copied and formulated into AI, errors will begin to appear without human intervention to prevent this. 
 I am already seeing this happen on news feeds. Need I give examples! They are so bleeding obvious to anyone that opens a browser and knows thier subject from reading books (knowledge gained not the internet and especially not from reading Wikipedia).
 
-We all have connected thoughts every day that that a computer could never make.
+We all have interconnected thoughts every day that that a computer could never make.
 For example, I was speaking to my partner about a property near us that was up for sale. 
 The conversation leads through several interconnected topics before ending with a discussion on nuclear bomb tests.
 Something a computer could never, ever do.
