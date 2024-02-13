@@ -16,7 +16,7 @@ The conversation leads through several interconnected topics before ending with 
 Something a computer could never, ever do.
 
 I doubt that any of any you are interested in this, why should you be? But anyway, please comment if you think I am being too pessimistic. 
-In my defence, the above has been my lived experience. Please prove wrong.
+In my defence, the above has been my lived experience. Please prove me wrong.
 
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
