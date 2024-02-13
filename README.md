@@ -8,7 +8,7 @@ I am a big fan of Excell and Word. Beyond that.....nothing but disappointment an
 
 AI will be the same. What happens when the data is no longer diverse as it losses it's current analogue base. 
 Once information is copied and formulated into AI, errors will begin to appear without human intervention to prevent this. 
-I am already seeing this happen on news feeds. Need I give examples! They are so bleeding obvious to anyone that opens a browser.
+I am already seeing this happen on news feeds. Need I give examples! They are so bleeding obvious to anyone that opens a browser and knows thier subject from reading books (knowledge gained not the internet and especially not from reading Wikipedia).
 
 We all have connected thoughts every day that that a computer could never make.
 For example, I was speaking to my partner about a property near us that was up for sale. 
