@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AIAdverse. I was born in the sixties and educated in the seventies. The future world of computers was an exciting prospect for me.
-- The older I get, the less impressed I am with both what computers both promised and the current actualities. In my experience, computers are:
+- The older I get, the less impressed I am with both what computers promised and the current actualities. In my experience, computers are:
 - 1) Not fast
   2) Not effective
   3) Not efficient.
