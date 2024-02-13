@@ -17,7 +17,7 @@ Something a computer could never, ever do.
 
 I doubt that any of any of you are interested in these thoughts, why should you be? But anyway, please comment if you think I am being too pessimistic. 
 In my defence, the above has been my lived experience. Please prove me wrong. 
-I am begining to believe that Isambard Kingdom Brunel achieved more with a pencil, ruler and paper than arguably AI ever will, and at a fraction of the cost both in terms of money and potential harm to the planet.
+I am begining to believe that Isambard Kingdom Brunel achieved more with a pencil, ruler and paper than arguably AI ever will, and at a fraction of the cost both in terms of money and potential harm to the planet, democracy and the pillars of our current relatively stable political state.
 
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
