@@ -15,7 +15,7 @@ For example, I was speaking to my partner about a property near us that was up f
 The conversation leads through several interconnected topics before ending with a discussion on nuclear bomb tests.
 Something a computer could never, ever do.
 
-I doubt that any of any you are interested in this, why should you be? But anyway, please comment if you think I am being too pessimistic. 
+I doubt that any of any of you are interested in these thoughts, why should you be? But anyway, please comment if you think I am being too pessimistic. 
 In my defence, the above has been my lived experience. Please prove me wrong.
 
 - 👀 I’m interested in ...
